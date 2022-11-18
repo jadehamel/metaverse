@@ -9,3 +9,8 @@ The Blockchains reputations and ranking as representative models to valide the i
 Many corrupted blockchains will integrate objects that are not supposed to be there. It will be at this moment spreading the biggest WTF situations of all times!
 
 When Metaverse will have another name given by the community, every blockchains will contribute in their own ways to it! The creativity from a blockchain to heal this environment will rank them up or down.
+
+
+So soon... Metaverse would be "Minecraverse" in term of possibilities!
+
+Sadly for Meta, Metaverse will never be theirs...
