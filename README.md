@@ -16,3 +16,9 @@ So soon... Metaverse would be "Minecraverse" in term of possibilities!
 Sadly for Meta, Metaverse will never be theirs...
 
 It would be everyones, not just some people's 90's dream... Trying to secure the ownership of this revolution is the worst businesse's decision...
+
+Please help me update this or adding lines!! 
+
+I'm expeting many contributions...
+
+What do you believe will happen?
